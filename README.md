@@ -1,16 +1,14 @@
 ### Hi 👋 I am Büşranur Duran
+I am an Industrial Engineer 👷🏻‍♀️
+I'm currently learning Python in SistersLab 👩🏻‍💻
+I am interested in business intelligent tools and some software language 🖥️
+Especially I love using Power BI and Python  
 
-<!--
-**bsrdrn/bsrdrn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I love watching Korean series and reading webtoons 🎎
+Also, I am feeding so many kinds of plants 🎍🌱🌵
 
-Here are some ideas to get you started:
+I am an individual who tries to learn new things and enjoys innovations 💁🏻‍♀️
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Some of my contact information where you can reach me;
+📩 duranbusra178@gmail.com
+www.linkedin.com/in/büşraduran
