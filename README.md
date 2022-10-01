@@ -20,8 +20,8 @@ I'm an individual who tries to learn new things and enjoys innovations 💁🏻�
 ---
 Some of my contact information where you can reach me;
 
-![](https://pbs.twimg.com/media/EqKcuxmVQAAexmX.jpg) [EMAIL](duranbusra178@gmail.com)
+[EMAIL](duranbusra178@gmail.com)
 
-![](https://www.right2city.org/wp-content/uploads/2021/02/linked-in.jpg) [LinkedIn](nwww.linkedin.com/in/büşraduran)
+[LinkedIn](nwww.linkedin.com/in/büşraduran)
 
 
