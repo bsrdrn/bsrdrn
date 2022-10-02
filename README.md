@@ -2,8 +2,6 @@
 
 I'm an Industrial Engineer 👷🏻‍♀️
 
-![](https://i.pinimg.com/736x/d8/ba/c4/d8bac472d23391a30bc4be2f9795f1a7.jpg)
-
 I'm currently learning Python in SistersLab 👩🏻‍💻
 
 I'm interested in business intelligent tools and some software language 🖥️
