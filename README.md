@@ -27,7 +27,11 @@ Some of my contact information where you can reach me;
 
 
 [LinkedIn](https://www.linkedin.com/in/büşraduran)
+
 duranbusra178@gmail.com
+
+
+
 
 
 
