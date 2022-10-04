@@ -25,9 +25,8 @@ I'm an individual who tries to learn new things and enjoys innovations 💁🏻�
 ---
 Some of my contact information where you can reach me;
 
-[EMAIL](duranbusra178@gmail.com)
 
-[LinkedIn](nwww.linkedin.com/in/büşraduran)
+[LinkedIn](https://nwww.linkedin.com/in/büşraduran)
 
 
 
