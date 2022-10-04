@@ -1,3 +1,8 @@
+<!--   my-header-img -->
+![](./myGif.gif)
+
+
+
 # Hi 👋 I am Büşranur Duran
 
 I'm an Industrial Engineer 👷🏻‍♀️
